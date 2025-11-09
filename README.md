@@ -1,4 +1,4 @@
-> Below by Gemini.
+> by Gemini
 
 -----
 
